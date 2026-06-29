@@ -1,4 +1,4 @@
-
+Experience brainrot evolution like never before with smart brainrot evolution Scripts, the #1 Script. Includes esp and auto-upgrade for unbeatable
 
 
 
